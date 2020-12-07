@@ -11,7 +11,7 @@ Rabbi isin irraa haa qabu <br/>
 Yaamaa *ergadhaa*, yaamaa *elmadhaa*<br/>
 *dhalli* manatti, *horiin* dallatti isiniif haa guddatu <br/>
 Bakka *jabanaan* dhaabate, *nagaan* haa dhaabatau <br/>
-Wanni isin facaaftan *gootaraa fi gumbii* haa guutu
+Wanni isin facaaftan *gootaraa fi gumbii* haa guutu <br/>
 Hiixatanii waan *gaarii* malee, *hamaa* hin qabinaa <br/>
 Yoo dhabdanii dhabdan, *bunaaf nagaa* hin dhabinaa <br/>
 **Nagaan Oolaa/Nagaan Bulaa** <br/>
